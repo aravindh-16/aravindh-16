@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Tech
 - 📫 How to reach me - Through Linkedin
 - 😄 Pronouns: He
-- ⚡ Fun fact: I'm Virgin
+- ⚡ Fun fact: I'm a Boy
 
 <!---
 aravindh-16/aravindh-16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
